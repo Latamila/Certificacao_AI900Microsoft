@@ -14,3 +14,7 @@ Parte 4: https://youtu.be/-PTMatKMUd0?si=sccBJ8_wsZ6RorRq
 Parte 5: https://youtu.be/JqgDJDpa6H0?si=nmA484R5R-YwEm_G
 
 Parte 6: https://youtu.be/FrIB6a7nXFI?si=2Fx7spCkPbRBfMjB
+
+Parte 7: https://youtu.be/NhaHoZI0aXk?si=KhP6KE_kDLaEOHei
+
+
