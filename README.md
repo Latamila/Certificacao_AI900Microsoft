@@ -1,5 +1,8 @@
 # Certificacao_AI900Microsoft
 Material e simulados para a Certificação de IA900
+Padlet com fornularios online: 
+
+https://padlet.com/camilaaeromoca/mentoria-t-cnica-ai-900-5kst2az4hc6mw66
 
 Correção de Simulados em vídeos:
 
