@@ -33,6 +33,11 @@ Parte 14: https://youtu.be/Ygjp54NbhAE?si=Skj-XBYKXQVXcXnY
 
 Parte 15: https://youtu.be/tV29sxQBk9o?si=A9nuLito0cSYB73g
 
+Parte 16: https://youtu.be/WsGqaDOL_bk?si=WIrkMrk17fDdbZus
+
+Parte 17: https://youtu.be/bH-xrO-W6Bw?si=JKl8T-WcHV6Sz6_S
+
+Parte 18: https://youtu.be/M_NJG12xfqE?si=myGY5hymwF8xzpAa
 
 
 
