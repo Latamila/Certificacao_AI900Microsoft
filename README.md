@@ -3,7 +3,7 @@ Material e simulados para a Certificação de IA900
 
 Correção de Simulados em vídeos:
 
-Parte 1: https://www.youtube.com/watch?v=j0wwfb0-JPc&list=PL1OXdp6hEFFe-Wy57UHKd5MTP94JCGXMs
+Parte 1: https://youtu.be/j0wwfb0-JPc?si=DGzGB77IkTDOZ7KT)
 
 Parte 2: https://youtu.be/HNsykRiV4Kw?si=KRfFiJoDkfdhzzXX
 
